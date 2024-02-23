@@ -12,3 +12,12 @@
 *   Telegram 博彩资讯:https://t.me/boxun
 *   Telegram 币圈资讯-虚拟货币最新行情资讯:https://t.me/bixun
 *   Telegram VPN机场:https://t.me/tonvpn
+*   Telegram 麻豆传媒:https://t.me/MaDouPro
+*   Telegram 果冻传媒:https://t.me/GuoDongHub
+*   Telegram 大象传媒：https://t.me/DaXiangHub
+*   Telegram 每日一赛：https://t.me/meiriyisai
+*   Telegram 网赚生意：https://t.me/shengyijing
+*   Telegram 扩圈交友：https://t.me/kuoquan
+*   Telegram 表情贴纸：https://t.me/EmojiHubs
+*   Telegram 中文汉化：https://t.me/hanzi
+*   Telegrma 专业查档：https://t.me/dangcha
